@@ -4,4 +4,4 @@
 
 
 
-![alt text](https://kosovajob.com/celonis/admin/companyLogos/1621513088.png)
+![alt text](https://ibb.co/ky2B1Lq)
