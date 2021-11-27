@@ -4,4 +4,4 @@
 
 
 
-![alt text](https://ibb.co/ky2B1Lq)
+![alt text](https://i.ibb.co/sP9RHTs/trankos-home-page.jpg)
